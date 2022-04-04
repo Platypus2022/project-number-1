@@ -1,1 +1,1 @@
-To be expamded at later date
+To be expanded at later date
